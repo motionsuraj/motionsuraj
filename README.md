@@ -1,4 +1,4 @@
-# 💫 Hi 👋, I'm Imran Alam
+# 💫 Hi 👋, I'm Suraj Yadav
 **A passionate UI/UX Design || Web Developer || PHP Developer**
 
 Email Me 👉 ✉️ **surajyadav78006@gmail.com** For Collaboration/Project or Anything Else. 😊😊
